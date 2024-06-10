@@ -1,4 +1,4 @@
-![](https://gifcity.carrd.co/assets/images/gallery59/d06f7de3.jpg?v=f453a084)
+
 ![](https://gifcity.carrd.co/assets/images/gallery59/d3337ecf.jpg?v=f453a084)
 ![](https://gifcity.carrd.co/assets/images/gallery59/afda91cb.png?v=f453a084)
 ![](https://gifcity.carrd.co/assets/images/gallery59/64918deb.gif?v=f453a084)
@@ -7,3 +7,4 @@
 ![](https://gifcity.carrd.co/assets/images/gallery59/3e8a7601.png?v=f453a084)
 ![](https://gifcity.carrd.co/assets/images/gallery60/243501eb.gif?v=f453a084)
 ![](https://gifcity.carrd.co/assets/images/gallery60/1bfc455e.png?v=f453a084)
+-
