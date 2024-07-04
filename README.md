@@ -6,3 +6,6 @@ Hello I was wondering if you might have a contact address, I was trying to send 
 
 here is the account I was talking about:
 https://gist.github.com/KevinHock
+
+
+You can contact me via my email raxoimm@outlook.com . I have to slowly work through accounts due to school , and theres a limit of how many I can follow at a certain time , but many thanks for linking this account
